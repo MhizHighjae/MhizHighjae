@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MhizHighjae
 - 👀 I’m interested in Data Analytics
 - 🌱 I’m currently learning Data Analytics on Cousera
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on with any learning platform that can help build my knowledge in it. I am also open for any intership in this field.
 - 📫 How to reach me ...
 
 <!---
